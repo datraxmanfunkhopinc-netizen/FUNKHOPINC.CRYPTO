@@ -1,3 +1,3 @@
 # FUNKHOPINC.CRYPTO
-https://funkhopinccrypto.com/Index.home/wp-content/uploads/2026/03/datraxmanfunkhopinc-kinglogo-1.jpeg
 
+<img width="1875" height="847" alt="image" src="https://github.com/user-attachments/assets/4ee93490-9b86-4b4e-b503-ed8ded1fda76" />
